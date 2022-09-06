@@ -5,9 +5,13 @@
 
 - 🔭 I’m currently study at [Gadjah Mada University](https://instagram.com/ugm.yogyakarta?igshid=YmMyMTA2M2Y=)
 
+- ⚽ My hobby a playing football and my favorite team is [Manchester United](https://instagram.com/manchesterunited?igshid=YmMyMTA2M2Y=)
+
+- 🙋‍♂️ My daily activities is **playing footbal and drinking coffe**
+
 - 📫 How to reach me **revin.yulistyo.nur.hutomo@mail.ugm.ac.id**
 
-- ⚡ Fun fact **people said that "I have nine souls and funny person" wkwkwk.**
+- ⚡ Fun fact **people said that "I have nine souls and funny person" hehehe.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
